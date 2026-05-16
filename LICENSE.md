@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket updated Algorithm: liquidity-provision & volume-analysis, the #1 algorithm. Includes liquidity-provision and volume-analysis for a
 
 
 
